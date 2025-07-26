@@ -1,4 +1,5 @@
-# 👋 Hey there, I'm SawyerWetson!
+# 👋 Hey there, I'm ![cooltext487304890583968](https://github.com/user-attachments/assets/a19c031a-bde1-4491-b13d-b24b759ec064)
+
 
 > 🚀 **Student | 12 years old | Code Explorer**
 
